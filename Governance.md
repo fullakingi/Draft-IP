@@ -1,3 +1,5 @@
 # Governance Progress
 
-Items here
+Discussion items between Kingi & Tiare
+- Connecting the haves to the have-nots
+
